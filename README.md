@@ -1,1 +1,1 @@
-The epiphany of coode 2.0
+The epiphany of code 2.0
